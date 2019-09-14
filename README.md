@@ -1,2 +1,10 @@
 # Problem-Solving
-Repo for storing and practicing problems.
+
+Problems and Solutions
+
+
+
+
+Dongmin an  
+@adomini022@gmail.com
+
